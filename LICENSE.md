@@ -1,4 +1,4 @@
-# 
+# Get the ultimate GIMP for PC | GIMP for Windows panel with vip GIMP for PC | GIMP for Windows Panel | layer-based-editing + liquify-tool. Featuring layer-based-editing and
 
 
 
